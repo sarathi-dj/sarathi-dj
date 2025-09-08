@@ -2,7 +2,7 @@
 - 👀 I’m interested in technology
 - 🌱 I’m currently learning full-stack development
 - 💞️ I’m looking to collaborate on something big
-- 📫 How to reach me _dj_sarathi(my insta id)
+- 📫 How to reach me _dj_sarathi(my insta id), parthasarathidj@outlook.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: 🥷
 
